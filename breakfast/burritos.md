@@ -8,3 +8,10 @@ A filling and nutritos breakfast with a Mexcian flair
 1 tomato
 1 cheese
 ## Directions
+Preheat 425
+
+Shreed cheese, oil 
+piut some sauage
+put some egg
+put chicken
+done
